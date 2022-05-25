@@ -1,6 +1,6 @@
 - 👋 Hi, my name is @HamedRanjbari
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning diffrent courses
+- 🌱 I’m currently learning different courses
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me => h.ranjbari22@gmail.com
      Telegram & WhatsApp => +989104641573 
